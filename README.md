@@ -1,0 +1,1 @@
+# 202431111_RendyPradikaAbiyoga_Ketetanggaan_dan_Konvolusi
